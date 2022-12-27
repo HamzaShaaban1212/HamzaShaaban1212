@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HamzaShaaban1212
-- 👀 I’m interested in Coputers and Coding
+- 👀 I’m interested in Computers and Coding
 - 🌱 I’m currently learning Computer Sciences And Cyber Security And Network
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me hamzaahmad85@yahoo.com
